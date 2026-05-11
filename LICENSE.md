@@ -1,4 +1,4 @@
-# 
+# Get the ultimate DaVinci Resolve for macOS extension with instant DaVinci Resolve for macOS Extension | lens-flare + time-remapping. Featuring lens-flare and time-remapping, it's
 
 
 
